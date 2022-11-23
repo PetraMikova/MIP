@@ -1,0 +1,1 @@
+na gite mam spristupneny repo clanok kde je moja praca na clanku a ulohy z 3CV
